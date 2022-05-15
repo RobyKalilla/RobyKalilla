@@ -7,7 +7,6 @@
 - I'm looking on collaborating for game modding and mapping projects
 
 - You can contact me via:
-Discord: Roby Lla#5933
 Email: camillopaco@gmail.com
 
 <!---
